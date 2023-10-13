@@ -1,0 +1,1 @@
+Whit this project i want to demonstrate to my self that i can SHUT DOWN my ego an learn the absolute basics instead of jumping directly on big projects an then quit.
